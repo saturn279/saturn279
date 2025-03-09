@@ -1,5 +1,5 @@
 - Hi, I’m Sarwesh
-- Reach out on git@dmes.ml
+- Feel free to reach out [here](https://www.linkedin.com/in/sarwesh-karande-027398147/)
 
 <!---
 saturn279/saturn279 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
